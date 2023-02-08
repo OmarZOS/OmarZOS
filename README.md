@@ -1,6 +1,6 @@
 - 👋 Hello there, I’m @OmarZOS..
 - 👀 I’m interested in : "computer science", "mathematics", "Electrical engineering", "Theoretical physics ❤️", "Mechanics"..
-- 🌱 I’m currently working on a large scale document management system..
+- 🌱 I’m currently looking for something that matters..
 - 📆: I’m looking to collaborate on software/Game development, IT security or operation research..
 - 📫 You can reach me by email : osjfvhng16@gmail.com, Facebook : [Omar Derstein](https://web.facebook.com/omar.derstein),..
 
